@@ -1,4 +1,4 @@
-- You must not argue about shotgun, which can only be called when both contestant are outside.
+- You must not argue about shotgun, which can only be called when both contestants are outside.
 
 **Specific to Sullivan**
 
