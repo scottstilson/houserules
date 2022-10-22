@@ -7,3 +7,4 @@
     - if he has any responsibilities he hasn’t discharged, and
     - after 9:30 PM.
 - He must come on a walk with Mom or Dad anytime she or he calls you.
+- If he has not installed Windows 11 on his computer by the end of the day Sunday, October 30, he may not use his computer.
