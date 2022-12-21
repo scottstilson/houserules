@@ -1,4 +1,5 @@
 - No one may argue about shotgun, which can only be called when both contestants are outside.
+- No child may enter the car after being picked up by a parent and look at their phone till at least ten minutes into the ride.
 
 **Specific to Sullivan**
 
